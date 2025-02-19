@@ -1,0 +1,21 @@
+
+Grilling or Broiling Vegetables
+When you expose the surface of vegetables to intense heat, the outside will cook much faster than the inside. So with grilling and broiling the goal is to balance that browning or charring outside with tenderness on the inside, while adding a smoky flavor.
+Sturdy vegetables—eggplant, onions, mushrooms, squash, corn on the cob, and potatoes—are the most obvious candidates to grill or broil, though tomatoes, green beans, and asparagus work great too. Some small vegetables, like mushrooms and radishes, you can grill whole; other large ones, like cauliflower and eggplant, work as “steaks” when thickly sliced; others, like Brussels sprouts, cherry tomatoes, or onion wedges, are best cut into bite-sized pieces and skewered or tossed in a perforated grilling basket. To ensure perfect doneness, you can parboil vegetables that take a long time to cook—potatoes or winter squash, for example—and finish them on the grill with shorter-cooking vegetables.
+Broiling is a good substitute, though you’ll have just one heat source. Try to avoid overcrowding the pan so the vegetables brown in places; if necessary work in batches. The best thing about these cooking methods is that the vegetables are excellent warm or at room temperature, as well as hot, so it’s okay if they sit for up to an hour before serving.
+Coat the vegetables all over lightly with a little oil or a marinade and grill, or broil about 4 inches away from the heat source. You don’t even need to parboil really hard vegetables like squash or potatoes; either slice them thin or grill them part of the time over indirect heat with the lid of the grill closed. Then move them over direct heat to finish browning. A master recipe and variation chart follow. There’s information about building and lighting fires on page 21.
+
+Grilled Vegetables
+Makes: 4 servings | Time: 10 to 30 minutes
+  
+Grilling is the most fluid of all cooking techniques. This master recipe will help you learn how to control that variability—and have some fun, too—providing you use all your senses to pay attention to both the food and the flame. The point is that almost any vegetable can be successfully cooked on the grill. Just go with the flow: Keep a portion of the grill free of coals or gas flame to move things over to indirect heat whenever things start charring faster than you want them to.
+Vegetables you can use: virtually everything except for leafy greens, though whole heads of romaine, radicchio, endive, escarole, or chicory are terrific. For some specific ideas, see “13 Recipes for Grilling Vegetables” on page 252.
+1½ pounds any vegetable, like eggplant, squash, peppers, onions, mushrooms, or a combination
+3 tablespoons olive oil, plus more for drizzling
+Salt and pepper
+Lemon wedges for serving (optional)
+
+If you’re using wooden skewers, soak them in water while you get the vegetables ready. Prepare a charcoal or gas grill for medium indirect cooking. Clean the grates; your vegetables will be less likely to stick.
+Trim, peel, and seed the vegetables as necessary. Cut them into chunks no more than 1 inch thick; or leave the smaller vegetables whole. For potatoes, squash, or eggplant, slices are fine; they should be between ½ inch thick, lengthwise or on the diagonal for smaller items like zucchini. For thin or fragile vegetables, thread them on skewers or use a grilling basket. Brush or drizzle them all over with the oil and sprinkle with salt and pepper.
+Be prepared move the vegetables around as they cook. For sturdy or dense items like sliced potatoes or winter squash, start with the cool side of the grill over indirect heat. Then as the pieces become tender, move them over direct heat to char the outsides. For pliable or small vegetables like sliced zucchini or peppers or mushrooms on skewers, start over direct heat; if they start to brown too quickly you can always move them to the cool side of the grill. If you’re grilling a variety of vegetables, pull them off as they are done while the rest catch up. Some vegetables will be ready in just a few minutes; others will take up to 30.
+Serve the vegetables hot, at room temperature, or chilled, with a drizzle of oil and lemon wedges if you like.

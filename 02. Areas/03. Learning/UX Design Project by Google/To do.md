@@ -1,0 +1,4 @@
+- Review the full content on coursera to make sure I match the structure
+- Create an index globally and at the scale of each project
+- Review what I did in the figma file to reproduce it for Momentum or any other app
+- Make sure all the templates are collected
